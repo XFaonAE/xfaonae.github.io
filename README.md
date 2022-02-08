@@ -8,6 +8,7 @@
  - **Ida Wells** Journalist who wrote about racial XXX and inequalities. Emphesis on racial percecution and lynching.
  - **NAACP** - National asian for the advancement of colored people. A powerful lobbying group which called attention to racial injustice and inequalities. Guinn VS United states - landmark supreme court case that ruined grandfather clause unconstitutional.
  - **Josef Cormac** Start the american medical association.
+ - **Taft** Anti trust
 
 # Etc...
  - The great awakening: People became more religious and spiritual.
